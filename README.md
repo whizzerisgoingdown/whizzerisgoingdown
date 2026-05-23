@@ -13,7 +13,7 @@
 
 ###
 
-<h3 align="center">Jason Weisenbachfeld, Trina Weisenbachfeld, Paul Matthews and Francis Clara Censordolls #1 Fan</h3>
+<h3 align="center">I love falsettos I LOVE FALSETTOS I love FALSETTOS I lOvE fAlSeTtOs!!</h3>
 
 ###
 
@@ -28,7 +28,7 @@
 ###
 
   <div align="left">
-  <img height="30" src="https://i.postimg.cc/x1mP5x9D/image-2024-05-23-212030973.png"  />
+  <img height="30" src="[https://files.catbox.moe/j9rr14.gif]"  />
 </div>
 
 ###
@@ -45,6 +45,6 @@ https://rentry.co/Greasyspoons_Rentry     ‎ ‎ ‎ ‎  https://greasyspoon.a
 
 ###
 
-<h4 align="left">I LOVE MORAL OREL, STARKIDS HATCHETFEILD SERIES, ROCKY HORROR AND THE MARVIN TRILOGY</h4>
+<h4 align="left">Moral orel and the marvin trilogys biggest fan :></h4>
 
 ###
